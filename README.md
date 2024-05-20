@@ -1,1 +1,1 @@
-The construction of the first modern highways, such as the Macadamized National Road in the United States, marked a significant milestone in 19th-century road development, providing a model for future road-building projects.
+The development of the interstate highway system in the United States, initiated by President Dwight D. Eisenhower in the 1950s, revolutionized long-distance travel and commerce, connecting cities and regions across the country.
