@@ -1,1 +1,1 @@
-The growth of trade and commerce in the 18th century increased demand for better roads, prompting governments to invest in road infrastructure as a means of facilitating economic growth and regional integration.
+The development of the interstate highway system in the United States, initiated by President Dwight D. Eisenhower in the 1950s, revolutionized long-distance travel and commerce, connecting cities and regions across the country.
