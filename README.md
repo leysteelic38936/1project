@@ -1,1 +1,1 @@
-The development of the interstate highway system in the United States, initiated by President Dwight D. Eisenhower in the 1950s, revolutionized long-distance travel and commerce, connecting cities and regions across the country.
+Road tolls, known as turnpikes, were introduced in the 18th century to fund road maintenance and construction, with travelers required to pay fees at toll gates along designated routes.
