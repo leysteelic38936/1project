@@ -1,1 +1,1 @@
-Road tolls, known as turnpikes, were introduced in the 18th century to fund road maintenance and construction, with travelers required to pay fees at toll gates along designated routes.
+The growth of trade and commerce in the 18th century increased demand for better roads, prompting governments to invest in road infrastructure as a means of facilitating economic growth and regional integration.
