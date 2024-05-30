@@ -1,1 +1,1 @@
-The growth of trade and commerce in the 18th century increased demand for better roads, prompting governments to invest in road infrastructure as a means of facilitating economic growth and regional integration.
+The implementation of highway safety standards and crash testing in the 20th century led to the development of safer road designs, vehicle technologies, and traffic regulations, reducing fatalities and injuries on roads.
