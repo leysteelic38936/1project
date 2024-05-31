@@ -1,1 +1,1 @@
-The implementation of highway safety standards and crash testing in the 20th century led to the development of safer road designs, vehicle technologies, and traffic regulations, reducing fatalities and injuries on roads.
+Roads in the 18th century were primarily unpaved, consisting of dirt, gravel, or cobblestones, which made travel slow, difficult, and uncomfortable.
