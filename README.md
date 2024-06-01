@@ -1,1 +1,1 @@
-Roads in the 18th century were primarily unpaved, consisting of dirt, gravel, or cobblestones, which made travel slow, difficult, and uncomfortable.
+The introduction of the first automated toll collection systems in the 20th century, such as electronic toll tags and automatic toll booths, improved efficiency and convenience for drivers on toll roads and bridges.
