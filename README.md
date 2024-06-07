@@ -1,1 +1,1 @@
-Road construction and maintenance were often carried out by local communities, with laborers using simple tools like shovels, picks, and wheelbarrows to repair and improve roads.
+The development of the first expressways, or controlled-access highways, in the United States in the mid-20th century provided fast and efficient travel routes for commuters and long-distance travelers alike.
