@@ -1,1 +1,1 @@
-The development of the first expressways, or controlled-access highways, in the United States in the mid-20th century provided fast and efficient travel routes for commuters and long-distance travelers alike.
+The rise of tourism in the 19th century, fueled by improvements in transportation and leisure time, created demand for scenic and well-maintained roads in rural and coastal areas.
