@@ -1,1 +1,1 @@
-The rise of tourism in the 19th century, fueled by improvements in transportation and leisure time, created demand for scenic and well-maintained roads in rural and coastal areas.
+The condition of roads varied widely depending on local maintenance efforts, with many roads in poor repair due to limited funding and resources allocated for maintenance.
