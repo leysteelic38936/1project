@@ -1,1 +1,1 @@
-The 19th century saw significant improvements in road infrastructure, including the widespread adoption of macadam roads, which consisted of compacted layers of crushed stone and gravel.
+The rise of urbanization and suburbanization in the 20th century spurred the construction of feeder roads, arterial routes, and ring roads to accommodate increased traffic and population growth in cities and metropolitan areas.
