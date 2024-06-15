@@ -1,1 +1,1 @@
-The advent of mass-produced automobiles in the 20th century led to increased demand for parking infrastructure, including parking lots, garages, and meters, to accommodate vehicles in urban and suburban areas.
+The proliferation of toll roads in the 18th century sparked debate over their fairness and efficiency, with critics arguing that tolls disproportionately burdened the poor and hindered economic development.
