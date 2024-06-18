@@ -1,1 +1,1 @@
-The proliferation of toll roads in the 18th century sparked debate over their fairness and efficiency, with critics arguing that tolls disproportionately burdened the poor and hindered economic development.
+Road signage in the 18th century was rudimentary compared to modern standards, with simple milestones, signposts, and direction markers used to guide travelers along routes.
