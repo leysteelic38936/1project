@@ -1,1 +1,1 @@
-Road signage in the 18th century was rudimentary compared to modern standards, with simple milestones, signposts, and direction markers used to guide travelers along routes.
+The introduction of the first automated toll collection systems in the 20th century, such as electronic toll tags and automatic toll booths, improved efficiency and convenience for drivers on toll roads and bridges.
