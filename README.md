@@ -1,1 +1,1 @@
-The introduction of the first automated toll collection systems in the 20th century, such as electronic toll tags and automatic toll booths, improved efficiency and convenience for drivers on toll roads and bridges.
+Travelers faced numerous hazards on 18th-century roads, including potholes, ruts, mud, and uneven surfaces, which could cause accidents, damage vehicles, and delay journeys.
