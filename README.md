@@ -1,1 +1,1 @@
-Travelers faced numerous hazards on 18th-century roads, including potholes, ruts, mud, and uneven surfaces, which could cause accidents, damage vehicles, and delay journeys.
+The introduction of the Ford Model T in 1908 revolutionized personal transportation, leading to increased demand for roads and highways to accommodate the growing number of automobiles on the road.
