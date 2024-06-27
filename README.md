@@ -1,1 +1,1 @@
-The introduction of the first motorways, or limited-access highways, in Europe in the 1920s and 1930s paved the way for the modern highway system, prioritizing speed, safety, and efficiency for long-distance travel.
+The 20th century witnessed unprecedented advancements in road infrastructure, with the widespread adoption of asphalt and concrete pavements, providing smoother and more durable surfaces for roads.
