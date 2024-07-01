@@ -1,1 +1,1 @@
-The construction of transcontinental highways and national road networks in the 19th century fostered economic integration, regional development, and cultural exchange across diverse landscapes and communities.
+The proliferation of toll roads in the 18th century sparked debate over their fairness and efficiency, with critics arguing that tolls disproportionately burdened the poor and hindered economic development.
