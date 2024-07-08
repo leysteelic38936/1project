@@ -1,1 +1,1 @@
-The development of standardized road signage and traffic regulations in the 19th century improved safety and navigation for travelers, reducing accidents and congestion on busy roads.
+The development of the first expressways, or controlled-access highways, in the United States in the mid-20th century provided fast and efficient travel routes for commuters and long-distance travelers alike.
