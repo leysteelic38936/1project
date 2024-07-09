@@ -1,1 +1,1 @@
-The development of the first expressways, or controlled-access highways, in the United States in the mid-20th century provided fast and efficient travel routes for commuters and long-distance travelers alike.
+The expansion of postal services and courier networks in the 19th century relied on well-maintained roads for the timely delivery of mail and packages between towns and cities.
