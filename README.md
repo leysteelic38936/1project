@@ -1,1 +1,1 @@
-The expansion of postal services and courier networks in the 19th century relied on well-maintained roads for the timely delivery of mail and packages between towns and cities.
+The development of the first high-occupancy vehicle (HOV) lanes in the 1970s and 1980s promoted carpooling and public transit use, reducing congestion and pollution on urban roads.
