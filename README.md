@@ -1,1 +1,1 @@
-The advent of mass-produced automobiles in the 20th century led to increased demand for parking infrastructure, including parking lots, garages, and meters, to accommodate vehicles in urban and suburban areas.
+Despite their limitations, 18th-century roads played a crucial role in connecting communities, facilitating trade and travel, and shaping the economic, social, and cultural landscape of the time.
