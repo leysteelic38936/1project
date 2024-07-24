@@ -1,1 +1,1 @@
-The development of intelligent transportation systems (ITS) in the late 20th century, including traffic management technologies, dynamic message signs, and vehicle-to-infrastructure communication, improved traffic flow and safety on roads.
+The growth of suburbanization in the 19th century spurred the construction of feeder roads and highways to connect residential areas to urban centers and transportation networks.
