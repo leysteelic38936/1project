@@ -1,1 +1,1 @@
-The growth of suburbanization in the 19th century spurred the construction of feeder roads and highways to connect residential areas to urban centers and transportation networks.
+The spread of telegraph lines alongside roads in the 19th century facilitated communication and commerce by enabling rapid transmission of messages and information across long distances.
