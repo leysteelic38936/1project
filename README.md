@@ -1,1 +1,1 @@
-The expansion of colonial empires in the 19th century spurred road construction in colonies and territories, often to facilitate the extraction of natural resources and the movement of troops and supplies.
+The advent of mass-produced automobiles in the 20th century led to increased demand for parking infrastructure, including parking lots, garages, and meters, to accommodate vehicles in urban and suburban areas.
